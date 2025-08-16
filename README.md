@@ -8,6 +8,7 @@ we'll probably figure this out and redo it some other day
 ✦ we like to draw and we'd love to meet more systems on here. open to interaction and would love to see sourcemates/have them interact with us
 
 ✦ we don't usually approach first. **whisper to interact** as well since we might not see your messages!
-Most recent artpiece as of 08/16/25:
-<img width="768" height="1024" alt="1000016268" src="https://github.com/user-attachments/assets/4ffe49d7-e0b1-4abb-a61a-e7324af173be" />
-**Do not claim this as your own art. this is art of our Ratio headmate and his boyfriend. This is not ship art; this is a personal made piece.**
+Some of what we do:
+<img width="400" height="400" alt="1000016271" src="https://github.com/user-attachments/assets/d77a18f5-24c5-4c82-a341-e11d4e3c3e30" />
+<img width="400" height="400" alt="1000016270" src="https://github.com/user-attachments/assets/942b9dbe-3638-4032-ae62-27125bfb865f" />
+**What these images are: Bust-up piece of our headmate Jing Yuan. Bust-up piece of our headmate Fruss.**
